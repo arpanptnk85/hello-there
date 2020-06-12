@@ -2,4 +2,4 @@
 
 Arpan here!
 
-You can call me ap ; I'm just fine with it.
+You can call me ap ; I'm just fine with that.
